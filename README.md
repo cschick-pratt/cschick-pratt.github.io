@@ -1,1 +1,0 @@
-# cschick-pratt.github.io
